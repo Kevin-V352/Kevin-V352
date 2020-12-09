@@ -1,3 +1,3 @@
 ## Hola, bienvenidos a mi repositorio 🎄🥳
 
-![Alt Text](https://media.giphy.com/media/NZUmzNRWuik9m6kvnx/giphy.gif)
+![Alt Text](https://i.ibb.co/DY9GXR3/KEVIN-VEGA.png)
